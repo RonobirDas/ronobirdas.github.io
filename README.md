@@ -1,2 +1,0 @@
-# ronobirdas
-Personal Site
